@@ -1,1 +1,0 @@
-# MaryanaStarikova.github.io
